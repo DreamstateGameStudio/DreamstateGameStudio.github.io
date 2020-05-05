@@ -1,4 +1,4 @@
-# www.DreamstateGameStudio.com
+# Dreamstate Game Studio
 Dreamstate Game Studio homepage
 
-Not yet ready, sorry.
+Not yet ready, sorry nya.
